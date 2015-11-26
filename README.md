@@ -1,4 +1,4 @@
-anjith2006.github.io
+anjithgeorge.github.io
 ======================
 
 Career Page 
